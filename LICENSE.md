@@ -1,4 +1,4 @@
-# 
+# Seguro Shotcut flujo de trabajo para Mac OS | Automático Shotcut flujo de trabajo para PC Windows. Con remapeo de tiempo y cámara lenta — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
